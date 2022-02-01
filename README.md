@@ -1,4 +1,4 @@
-### Olá pessoas, eu sou o Amon.
+### Olá pessoas, eu sou o Amon Cardim.
 - 🧑‍🎓 Studying science of technology at UFBA.
 
 <div>
