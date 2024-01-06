@@ -1,5 +1,5 @@
 ### Olá pessoas, eu sou o Amon Cardim.
-- 🧑‍🎓 Studying science of technology at UFBA.
+- 🧑‍🎓 Studying Systems analysis and development.
 
 <div>
   <a href="https://github.com/AmonCardim">
