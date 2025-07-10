@@ -1,4 +1,4 @@
-### Olá pessoas, eu sou o Amon Cardim.
+### Hi, I'm Amon 👋
 - 🧑‍🎓 Studying Systems analysis and development.
 
 <div>
